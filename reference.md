@@ -1,0 +1,2 @@
+- **Reference ⬇️**
+  - [LG LOGO](https://images.squarespace-cdn.com/content/v1/502a8efb84ae42cbccf920c4/1585574686746-VCDIHSO21O76WR72WIAD/LG-Logo.png)
